@@ -1,3 +1,3 @@
-# Ahojj
+# Nazdar
 #Jak je??
 #Suprově!
