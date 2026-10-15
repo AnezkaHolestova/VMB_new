@@ -1,0 +1,1 @@
+# jakto ze je tento skript prazdny?!
